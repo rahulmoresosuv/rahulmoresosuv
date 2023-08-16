@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rahulmoresosuv
+- 👋 Hi, I’m Rahul More,
 - 👀 I’m interested in Building Crypto Projects
 - 🌱 I’m currently learning Time Management
 - 💞️ I’m looking to collaborate on Crypto Projects
